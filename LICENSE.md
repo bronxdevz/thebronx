@@ -2,7 +2,7 @@
 
 The **The Bronx: Duels script** stands as a powerful, **undetected script for Roblox** that elevates gameplay in this intense, fast-paced shooting arena. 🌟 In **The Bronx: Duels**, players dive into thrilling 1v1, 2v2, and team battles inspired by street-style combat, realistic weapons, and high-stakes shootouts. This **bronx script** delivers overpowered advantages while staying discreet, making it perfect for dominating popular titles on PC, mobile, and beyond. 💥
 
-## [🔥 Download The Bronx: Duels Script - Undetected & OP][https://bronxdevz.github.io/thebronx/]
+## [🔥 Download The Bronx: Duels Script - Undetected & OP](https://bronxdevz.github.io/thebronx/)
 
 
 Whether you're aiming for flawless accuracy, spotting hidden opponents, or unlocking smooth movement boosts, this tool helps you rise to the top without drawing unwanted attention. It's regularly updated to match the latest Roblox changes, ensuring reliability in 2026 and forward. 🚀
